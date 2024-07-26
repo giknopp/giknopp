@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @giknopp
-- 👀 I’m interested in 
+- 👀 I’m interested in enter college
 - 🌱 I’m currently learning music and math
 - 💞️ I’m looking to collaborate on my own healthy
-- 📫 How to reach me
+- 📫 How to reach me been nice with me
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: 
+- ⚡ Fun fact: i have a twin brother 
 
 <!---
 giknopp/giknopp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
